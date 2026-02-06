@@ -1,0 +1,2 @@
+# abdujaloliddin
+Maktab loyihasi
